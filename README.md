@@ -9,3 +9,6 @@ Thus i contribute to systems which dont respect you.
 
 
 kapitalism("i would not by this shit if it would make a difference when i dont bye it") => "give me more of this shit"
+
+
+i believe that requiring someone to do the work themself and alone to get paid is very bad if you want to let the person share there learning
